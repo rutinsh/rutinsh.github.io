@@ -1,1 +1,1 @@
-[Portfolio](https://rutinsh.github.io/)
+[Portfolio](https://rutinsh.github.io/majaslapa)
